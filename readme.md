@@ -1,1 +1,1 @@
-Mi nombre es Juan Lassalle. Padre de Juan Gabriel Lassalle.
+Soy Argentino nacido en Tucuman
